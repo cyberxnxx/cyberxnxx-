@@ -1,2 +1,2 @@
 # cyberxnxx-
-Saya ingin belajar
+pemula
